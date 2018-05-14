@@ -1,1 +1,0 @@
-# vannadel.github.io
